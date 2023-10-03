@@ -1,2 +1,2 @@
-# david acota
+# david Acosta
 #david.acostaleon@wsu.edu
